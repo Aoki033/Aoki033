@@ -1,3 +1,5 @@
+<img width="412" height="527" alt="Zrzut_ekranu_2026-06-03_203231-removebg-preview" src="https://github.com/user-attachments/assets/7e79502e-9bd3-4421-9d18-e347c5fede01" />
+
 はじめまして Aoki と呼んでください。
 
 代名詞：he / him
