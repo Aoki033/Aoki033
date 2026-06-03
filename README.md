@@ -1,16 +1,21 @@
-## Hi there 👋
+はじめまして Aoki と呼んでください。
 
-<!--
-**Aoki033/Aoki033** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+代名詞：he / him
 
-Here are some ideas to get you started:
+19歳。
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+主に医学・アート・作詞・占星術・エソテリシズムに興味があります。ポーランドの文化や伝統、民俗にも興味があります。日本人で、普段は日本語で書いています。英語は基礎的な理解はありますが、まだ間違えることもあります。それでも、英語で話しかけていただければ、必ず返信するか、できる限り頑張ります。
+
+♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖♡ ˚₊‧ 𝙁𝘼𝙉𝘿𝙊𝙈𝙎: Harry Potter / Merlin/ QSMP/The Legend of Zelda /sonic/kuroshitsuji ♡ ˚₊‧⁺˖˖⁺‧₊˚ ♡ ˚₊‧⁺˖˖⁺‧₊˚
+
+𝘿𝙉𝙄（関わらないでください）
+
+・未成年の方
+
+・理由なくトラブルを起こす方
+
+・人種差別をする方、キャラのブラックウォッシュ／ホワイトウォッシュをする方
+
+・共産主義、その他問題のある団体を支持している方
+
+❗𝙄𝙈𝙋𝙊𝙍𝙏𝘼𝙉𝙏❗ 精神的な問題や病気の影響で、返信がとても遅くなったり、全くできない時があります。話したい気持ちはあっても、対応できないことがある点を理解してください。-愚痴・相談、許可なしでOKです。しんどい時は遠慮なく声かけてください本気じゃないフラートはやめてください。冗談やからかいが分からないことがあります。
