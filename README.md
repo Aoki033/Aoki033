@@ -23,4 +23,5 @@
 
 🖤𝙁𝙍𝙄𝙀𝙉𝘿𝙎🖤 Damien, /Mika / Lynxie,Kosherea/Mojunpwo,/ Eugh
 
-
+❗For english speakers❗
+I really enjoy chatting with people However, it can be difficult for me to reply in English. Please whisper when messaging me and be patient while I respond. My English isn't the best, but I'm doing my best!
