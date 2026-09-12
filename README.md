@@ -21,7 +21,7 @@
 
 ❗ 精神的な問題や病気の影響で、返信がとても遅くなったり、全くできない時があります。話したい気持ちはあっても、対応できないことがある点を理解してください。-愚痴・相談、許可なしでOKです。しんどい時は遠慮なく声かけてください本気じゃないフラートはやめてください。冗談やからかいが分からないことがあります。❗
 
-🖤𝙁𝙍𝙄𝙀𝙉𝘿𝙎🖤 Damien, /Mika / Lynxie,Kosherea/Mojunpwo,/ Eugh,Brula,Mer
+🖤𝙁𝙍𝙄𝙀𝙉𝘿𝙎🖤 Damien, /Mika / Lynxie,Kosherea/Mojunpwo,/ Eugh/Brula/,Mer
 
 ❗For english speakers❗
 I really enjoy chatting with people However, it can be difficult for me to reply in English. Please whisper when messaging me and be patient while I respond. My English isn't the best, but I'm doing my best!
